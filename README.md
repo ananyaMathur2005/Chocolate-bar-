@@ -1,1 +1,2 @@
 # Chocolate-bar-
+A chocolate bar or candy bar is a confection containing chocolate, which may also contain layerings or mixtures that include nuts, fruit, caramel, nougat, and wafers. A wide variety of chocolate bar brands are sold.
